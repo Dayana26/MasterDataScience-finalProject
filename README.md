@@ -1,5 +1,3 @@
-
-
 ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.goafrique.it%2Fviaggi%2Fil-meglio-della-tanzania%2F&psig=AOvVaw3X2rrcHRT1JGHTZqJtJgan&ust=1674074753619000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCKjltOq8z_wCFQAAAAAdAAAAABAE)
 
 # Final project
